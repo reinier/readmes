@@ -150,4 +150,4 @@ Deze algemene voorwaarden zijn opgesteld om de wederzijdse verwachting af te ste
 
 # 15. Auteursrecht over deze Algemene Voorwaarden
 
-Ook Algemene Voorwaarden vallen onder het Nederlands auteursrecht. Dat wil zeggen dat deze algemene voorwaarden niet zonder toestemming gekopieerd mogen worden. Komen deze algemene voorwaarden je bekend voor, dat klopt. Wij hebben expliciete toestemming van [Frozen Rockets B.V.](https://frozenrockets.nl) om hun algemene voorwaarden te gebruiken als basis voor onze eigen algemene voorwaarden.
+Ook Algemene Voorwaarden vallen onder het Nederlands auteursrecht. Dat wil zeggen dat deze algemene voorwaarden niet zonder toestemming gekopieerd mogen worden. Komen deze algemene voorwaarden je bekend voor, dat klopt. Wij hebben expliciete toestemming van [Frozen Rockets B.V.](https://frozenrockets.nl) en Janneke Boerman van [MetRechtHelder](https://metrechthelder.nl) om de algemene voorwaarden van Frozen Rockets te gebruiken als basis voor onze eigen algemene voorwaarden. Wil je ook zulke voorwaarden? Neem dan [contact op met Janneke Boerman van MetRechtHelder](https://metrechthelder.nl).
