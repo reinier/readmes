@@ -132,7 +132,7 @@ Deze algemene voorwaarden zijn opgesteld om de wederzijdse verwachting af te ste
 
 ## 13. Wat als u te laat betaalt? 
 
-1. Wanneer u niet aan de betalingsvoorwaarden voldoet, zij wij helaas genoodzaakt om incassokosten en wettelijke rente in rekening te brengen. De wettelijke rente berekenen wij direct na het verlopen van de betalingstermijn van onze factuur. Daarnaast kunnen de bijkomende kosten de volgende kosten bedragen:
+1. Wanneer u niet aan de betalingsvoorwaarden voldoet, zijn wij helaas genoodzaakt om incassokosten en wettelijke rente in rekening te brengen. De wettelijke rente berekenen wij direct na het verlopen van de betalingstermijn van onze factuur. Daarnaast kunnen de bijkomende kosten de volgende kosten bedragen:
 	- Over de eerste EUR 2.500: 15% van het factuurbedrag (met een minimum van €40);
 	- Over de volgende EUR 2.500: 10% van het factuurbedrag;
 	- Over de volgende EUR 5.000: 5% van het factuurbedrag;
