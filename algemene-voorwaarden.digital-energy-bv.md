@@ -8,7 +8,7 @@ Deze algemene voorwaarden zijn opgesteld om de wederzijdse verwachting af te ste
 
 ## 1. Definities
 
-1. Voor de leesbaarheid van deze algemene voorwaarden hebben wij gebruik gemaakt van de ‘wij-vorm’. Waar ‘wij’ of ‘ons’ staat wordt het bedrijf Digital Energy B.V. bedoeld, ingeschreven onder kamer van koophandel nummer 24310329 en gevestigd aan de Nicolaes Maesstraat 2 te Zaandam.
+1. Voor de leesbaarheid van deze algemene voorwaarden hebben wij gebruik gemaakt van de ‘wij-vorm’. Waar ‘wij’ of ‘ons’ staat wordt het bedrijf Digital Energy B.V. bedoeld, ingeschreven onder kamer van koophandel nummer 24310329 en gevestigd te Zaandam.
 
 2. ‘De Werkzaamheden’ — onze werkzaamheden kunnen bestaan uit, maar zijn niet beperkt tot, de volgende diensten: consultancy uren, ontwerpwerkzaamheden, ontwikkel- en programmeerwerkzaamheden, het verzorgen van een cursus, presentatie of een workshop.
 
